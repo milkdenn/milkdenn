@@ -2,7 +2,7 @@
 
 ╰┈➤ˎˊ˗ he/him/they/them
 
-╰┈➤˗ˏˋ tf2, the long long holiday, guts and blackpowder, country humans, hetalia ♥
+╰┈➤˗ˏˋ tf2, the long long holiday, guts and blackpowder, country humans, hetalia, centaura ♥
 
 ╰┈➤˗ˏˋ angel, margo, pan, nellie, fruit >>> 
 
